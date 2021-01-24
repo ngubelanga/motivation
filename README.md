@@ -1,0 +1,2 @@
+# motivation
+Earn bitcoin
